@@ -8,5 +8,3 @@ Meu nome e Stefane de Paula
 - 💬 Nova nesse mundo
 
 - Entre em contanto por: Stefane.Cavalli@escola.pr.gov.br
-
-- 
